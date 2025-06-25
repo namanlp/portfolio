@@ -38,7 +38,14 @@ without having much trouble. In fact we have quite good bonding with KUK guys, a
 Although, NIT Kurukshetra is located in Thanesar, which is like a bit outer side of Kurukshetra, 
 yet all the facilities are available on campus. You have blinkit, zomato, swiggy etc. services available.
 
-**Facilities in Campus :** There is a market, with various shops, like general store, stationary store, medical store, juice shop, 
+There is also [Brahma Sarovar](https://en.wikipedia.org/wiki/Brahma_Sarovar) that is not very far from NIT Kurukshetra, and its best place to go to in the evening.
+
+Overall, if you like calm vibes, NIT Kurukshetra is one of the best colleges for you!
+
+
+### Facilities in Campus
+
+There is a market, with various shops, like general store, stationary store, medical store, juice shop, 
 SBI Bank branch and ATM, barber, washing/dry cleaning shop, 1 small eatery and a Dominos! 
 There's also a senate hall canteen, which serves decently good food at fairly cheap prices. 
 
@@ -53,3 +60,23 @@ If you are still not satified / want food at 3 am / want non veg, there's eateri
 that deliver food at backgate (that is just outside H7 or H8) even till 3 am ( I haven't tested after that, but they do deliver at least till 3 am ). 
 You can order anything from them - they have fairly large menu and cheap prices and okayish food quality.
 
+### Sports
+
+Sports facilities are good. Sports complex is generally open till 9pm, and have good floodlights for late night matches. Sports complex is really well maintained.
+
+* For badminton, there's an outside court, having 2 courts side by side in sports complex and 1 indoor court, for professional players. 
+Faculty also play in indoor court. Apart from these, there's court in almost every hostel for badminton.
+* For table tennis, there's table in each hostel, and there's a special hostel where it is reserved for professional players.
+* For volleyball, there's a court in each hostel, and 2 courts in sports complex for professionals.
+* For basketball, there's a court in sports complex and some hostels have separate courts, but not maintained. KUK has 3 courts, which is like 500m from our sports complex.
+* For football, there's huge ground in sports complex, which is pretty well maintained.
+* For cricket, well, you can use the sports ground, or go to KU. You can play gully cricket in Hostels itself, there's more than enough space.
+* Yoga classes are held daily at sports complex.
+* There's also a 400m athletic track.
+* There's also a lawn tennis court, but no one plays lawn tennis.
+* Kabaddi is also played in sports complex. There's a bit separate area for that..
+* Gym is also there, but is always crowded. You have to join gym outside campus.
+* There's a swimming pool as well, which is closed since covid. They did open it last year I guess, Idk what happened to it. Never went there. I guess I covered all the sports that I know. Also, you can borrow the equipment like balls, rackets etc. from sports complex, but only till 5 pm. If you are professional, they'll allow you to keep it for night as well. Do let me know if I missed anything.
+
+**Singing/Dancing/Acting :** There are clubs for each of these and pretty active. They win a lot of competitions. 
+There's SAC (student activity centre) and a Jubilee hall for practising.
