@@ -64,19 +64,23 @@ You can order anything from them - they have fairly large menu and cheap prices 
 
 Sports facilities are good. Sports complex is generally open till 9pm, and have good floodlights for late night matches. Sports complex is really well maintained.
 
-* For badminton, there's an outside court, having 2 courts side by side in sports complex and 1 indoor court, for professional players. 
-Faculty also play in indoor court. Apart from these, there's court in almost every hostel for badminton.
-* For table tennis, there's table in each hostel, and there's a special hostel where it is reserved for professional players.
+* For badminton, there's an outside court in the sports complex, having 2 nets and 1 indoor court, for professional players. Indoor court is very well maintained and
+Faculty members also play in indoor court. Apart from these, there's court in almost every hostel for badminton.
+* For table tennis, there's table in each hostel, and there's a special hostel where it is reserved for professional players and have multiple tables.
 * For volleyball, there's a court in each hostel, and 2 courts in sports complex for professionals.
-* For basketball, there's a court in sports complex and some hostels have separate courts, but not maintained. KUK has 3 courts, which is like 500m from our sports complex.
+* For basketball, there's a court in sports complex and some hostels have separate courts, but not very well maintained. 
+KUK has 3 courts, which is like 500m from our sports complex and anyone can go play in them.
 * For football, there's huge ground in sports complex, which is pretty well maintained.
 * For cricket, well, you can use the sports ground, or go to KU. You can play gully cricket in Hostels itself, there's more than enough space.
-* Yoga classes are held daily at sports complex.
-* There's also a 400m athletic track.
-* There's also a lawn tennis court, but no one plays lawn tennis.
-* Kabaddi is also played in sports complex. There's a bit separate area for that..
-* Gym is also there, but is always crowded. You have to join gym outside campus.
-* There's a swimming pool as well, which is closed since covid. They did open it last year I guess, Idk what happened to it. Never went there. I guess I covered all the sports that I know. Also, you can borrow the equipment like balls, rackets etc. from sports complex, but only till 5 pm. If you are professional, they'll allow you to keep it for night as well. Do let me know if I missed anything.
+* Yoga classes are held daily in the sports complex.
+* There's also a 400m athletic track in the sports complex.
+* There's also a lawn tennis court, but no one plays lawn tennis at all.
+* Kabaddi is also played in sports complex. There's a bit separate area for that.
+* Gym is also there, but is always crowded. You can join gym outside campus, there are plenty of them.
+* There's a swimming pool as well, which is closed since covid. They did open it last year I guess, Idk what happened to it. Never went there.
+
+I guess I covered all the sports that I know. Also, you can borrow the equipment like balls, rackets etc. from sports complex, but only till 5 pm. 
+If you are professional, they'll allow you to keep it for night as well.
 
 **Singing/Dancing/Acting :** There are clubs for each of these and pretty active. They win a lot of competitions. 
 There's SAC (student activity centre) and a Jubilee hall for practising.
