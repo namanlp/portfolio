@@ -82,7 +82,7 @@ KUK has 3 courts, which is like 500m from our sports complex and anyone can go p
 I guess I covered all the sports that I know. Also, you can borrow the equipment like balls, rackets etc. from sports complex, but only till 5 pm. 
 If you are professional, they'll allow you to keep it for night as well.
 
-### Cultural Clubs
+## Cultural Clubs
 
 There are many clubs in college that are pretty active. They are different from technical socities because technical socities are more closely monitored
 by a faculty member and are more focused. Technical societies organise [TechSpardha](https://www.techspardha.in/), the technical fest while cultural club organises 
@@ -93,3 +93,4 @@ by a faculty member and are more focused. Technical societies organise [TechSpar
 There are many technical societies in college that are pretty active. They are different from cultural clubs because cultural clubs are more student managed
  and are more chill. Technical societies organise [TechSpardha](https://www.techspardha.in/), the technical fest while cultural club organises 
 [Confluence](https://nitkkr.ac.in/confluence/), the cultural fest.
+
