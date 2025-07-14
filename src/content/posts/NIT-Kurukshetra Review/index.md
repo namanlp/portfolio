@@ -2,7 +2,7 @@
 title: NIT Kurukshetra - A beautiful journey
 published: 2025-07-01
 description: "I completed my BTech in Computer Engineering from NIT Kurukshetra in 2025. This post is a review about this."
-tags: ["NIT Kurukshetra", "BTech", "Blog", "Haryana"]
+tags: ["NIT Kurukshetra", "BTech", "Blog", "College", "Haryana"]
 category: NIT Kurukshetra
 draft: true
 ---
