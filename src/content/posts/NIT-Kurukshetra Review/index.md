@@ -93,4 +93,3 @@ by a faculty member and are more focused. Technical societies organise [TechSpar
 There are many technical societies in college that are pretty active. They are different from cultural clubs because cultural clubs are more student managed
  and are more chill. Technical societies organise [TechSpardha](https://www.techspardha.in/), the technical fest while cultural club organises 
 [Confluence](https://nitkkr.ac.in/confluence/), the cultural fest.
-
